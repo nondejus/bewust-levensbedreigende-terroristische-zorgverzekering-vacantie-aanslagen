@@ -1,1 +1,1 @@
-# bewust-levensbedreigende-terroristische-zorgverzekering-vacantie-aanslagen-
+# bewust-levensbedreigende-terroristische-zorgverzekering-vacantie-aanslagen
